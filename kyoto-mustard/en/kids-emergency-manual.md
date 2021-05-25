@@ -1,3 +1,9 @@
+###  To the Parents
+
+- This is a manual for emergency situations during Kids Class.
+- In case of fire, kids in kids class will evacuate with their teachers, so meet them in front of Fujii Daimaru. If you are on the 5th floor with a child who does not join kids class (such as using baby space), take that child with you and evacuate using the stairs next to the elevator.
+- In case of earthquake, check your children out at kids class space on the 5th floor. Then, evacuate with your children to the Kyōto Municipal General Education Center (京都市総合教育センター).
+
 ### Kids Class Emergency Manual
 
 - Teachers in each class, please confirm who is in your classroom at the beginning of each class, and if any children are missing, remove or indicate as such on the attendance sheet. If children come later, please make sure to add them to the attendance sheet.
