@@ -12,3 +12,61 @@ Divide the children into smaller groups and have a conversation with them.
 - Ask: Have you ever lost this special thing?  
 - Ask: How did you feel or would you feel if it was lost? What would you do? 
 - Say: Today in our lesson someone loses something that is special to them. 
+
+# Memory Verse
+Read the verse aloud and briefly explain each word or phrase. 
+"For the (_point up_) Son of Man (_point down_) came to (_cup eyes_) seek and (_make cross with fingers_) save the  (_cover eyes_) lost. (_make a book with hands_) Luke 19:10 "
+
+# Bible Lesson
+
+## Jesus tells a parable: 
+One day a long time ago when Jesus was on earth he would tell people about God and the way that God wants us to live.  
+Jesus told people a parable which is like a story so they could understand God better.  
+Jesus told people to think about a shepherd. Can you think about a shepherd?  
+A shepherd is someone who takes care of sheep. They make sure that the sheep have food, water and a place to rest. A shepherd keeps his sheep safe.  
+A shepherd will count the sheep to make sure all the sheep are there every day.  
+A shepherd does not want any of his sheep to get lost.  
+## The lost sheep: 
+Jesus tells a story about a shepherd who had one hundred sheep and one of them was lost. So now he only has ninety-nine sheep.  
+The shepherd did not say “Well, that is ok. I have lots of sheep!”  
+Instead he went out and looked all over for it.   
+The shepherd will keep looking for the sheep until he finds it.  
+How do you think the shepherd feels right now?  
+When he finds it he carries it back to his friends and says, “I found my lost sheep! Come have a party with me because I thought I had lost this sheep but now I have found it!” 
+## The Gospel: 
+Jesus said that people are like sheep and God is like the shepherd.  
+God loves every person just like this shepherd loves his sheep.  
+Our sin makes us far from God like this sheep going away from the shepherd.  
+But God does not want us to be far away.  
+God loves us so much he wants us to be near him!  
+Just like the shepherd in the story went to look for and rescue the lost sheep, God also rescues us!  
+He sent his son Jesus into the world to die on the cross for our sins.  
+It’s like we were lost and far away from God, but when we believe in Jesus God rescues us and finds us!  
+And when we believe, God is so happy! God wants everyone in the whole world to believe in Jesus!  
+
+# Activity #3: Find the Sheep! 
+
+Hide one or more pictures of sheep around the room. Keep one picture for yourself to show the children. 
+Show the picture of the sheep to the children. 
+- Say: I have lost some of my sheep, can you help me find them?  
+Let the children look around and find the lost sheep. 
+After the children find the sheep you can repeat this activity by asking the kids to close their eyes while you hide the sheep in different places.  
+- Say: There was a lost sheep in our lesson today and God is like the shepherd in the story and we are like the sheep.
+
+# Activity #4: Act out the story! 
+
+- Say: Let's act out the story that we talked about today.  
+Choose one child to be the shepherd.
+Choose a few children to be the neighbors. 
+Choose one child to be the lost sheep. 
+And the rest of the children can be sheep.
+Lead them in acting the story out. 
+The shepherd is watching his sheep. 
+Then one sheep wanders off and gets lost. 
+The shepherd counts his sheep and sees that one is missing.
+How does the shepherd feel? 
+He looks all over. He even asks his neighbors. 
+He finds the sheep and is very happy! 
+He invites his neighbors to come and celebrate! 
+- Say: When a person believes in God he celebrates! God wants everyone to know how much he loves them.  
+Repeat this so that other children can have a turn being different parts of the story. 
