@@ -26,7 +26,7 @@ Divide the children into smaller groups and have a conversation with them.
 
 # Memory Verse
 Read the verse aloud and briefly explain each word or phrase. 
-"For the (_point up_) Son of Man (_point down_) came to (_cup eyes_) seek and (_make cross with fingers_) save the  (_cover eyes_) lost. (_make a book with hands_) Luke 19:10 "
+"For the (_point up_) Son of Man (_point down_) came to (_cup eyes_) seek and (_make cross with fingers_) save the  (_cover eyes_) lost. (_make a book with hands_) Luke 19:10"
 
 # Bible Lesson
 
@@ -37,14 +37,14 @@ A shepherd is someone who takes care of sheep. They make sure that the sheep hav
 A shepherd will count the sheep to make sure all the sheep are there every day.  
 A shepherd does not want any of his sheep to get lost.  
 ## The lost sheep: 
-Jesus tells a story about a shepherd who had one hundred sheep.
+Jesus tells a story about a shepherd who had one hundred sheep.  
 But then, the shepherd lost one. Now he only has ninety-nine sheep.  
 The shepherd did not say “Well, that is ok. I have lots of sheep!”  
 Instead he went out and looked all over for it.  
 The shepherd searched and searched.  
 And then... he found the sheep!  
 How do you think the shepherd feels right now?  
-When he finds it he carries it back to his friends and says, “I found my lost sheep! Come have a party with me because I thought I had lost this sheep but now I have found it!” 
+When he finds it he carries it back to his friends and says, “I found my lost sheep! Come have a party with me because I thought I had lost this sheep but now I have found it!”  
 ## The Gospel: 
 Jesus said that people are like sheep and God is like the shepherd.  
 God loves every person just like this shepherd loves his sheep.  
@@ -55,27 +55,24 @@ Just like the shepherd in the story went to look for and rescue the lost sheep, 
 He sent his son Jesus into the world to die on the cross for our sins.  
 It’s like we were lost and far away from God, but when we believe in Jesus God rescues us and finds us!  
 And when we believe, God is so happy! God wants everyone in the whole world to believe in Jesus!  
-
-# Bible Lesson
-
-## Jesus tells a parable: 
-One day Jesus was telling people some parables.  
-A parable is a story that Jesus tells to help us understand God and his ways better.  
-Jesus said to think about a lady who had ten coins. Can you hold up ten fingers?  
-This lady really likes her coins. She counts them to make sure that she has them all and that none were lost. (count the ten coins from the previous activity.)  
+## The lost coin:
+Then Jesus told another story. 
+He said, "There was a lady with ten coins." Can you hold up ten fingers?  
+This lady really likes her coins. She counts them to make sure that she has them all and that none were lost. (Count the ten coins from the previous activity.)  
 But one day she lost one of her coins. How do you think she felt? What do you think she did?  
 That's right! She would go and look for it!  
 She looks all over her house. She looked everywhere for her coin. She swept her whole house and looked and looked for it.  
 She did not stop looking for it until she found it.  
 When she found her coin she called her friends and said, “I found my lost coin! Come have a party with me because I thought I had lost this coin but now I have found it!”  
 ## The Gospel:  
-At the end of this story Jesus said that God loves every person just  like the lady loved her coins. God loves people even more than this lady loved her coins.  
+At the end of this story Jesus said that God loves every person just like the lady loved her coins. God loves people even more than this lady loved her coins.  
 We are all lost. Not because we don’t know where we are but because of our sin.  
 Our sin keeps us away from God.  
 God wants us to be near him because he loves us.  
 So he made a way for us to be near him by sending Jesus to take away our sin. Jesus died and rose again so that anyone who believes can be with God forever.  
 Each of us has to decide if we want to believe in Jesus and follow God.  
 Whenever a person chooses to do this, God celebrates!  
+And we can celebrate with God too!  
 
 # Activity #3a: Find the Sheep! 
 
