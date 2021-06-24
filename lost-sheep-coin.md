@@ -60,13 +60,13 @@ And when we believe, God is so happy! God wants everyone in the whole world to b
 ## Jesus tells a parable: 
 One day Jesus was telling people some parables. 
 A parable is a story that Jesus tells to help us understand God and his ways better.  
-Jesus said to think about a lady who had ten coins. Can you hold up ten fingers? 
-This lady really likes her coins. She counts them to make sure that she has them all and that none were lost. (count the ten coins from the previous activity.)
-But one day she lost one of her coins. How do you think she felt? What do you think she did? 
-That's right! She would go and look for it! 
-She looks all over her house. She looked everywhere for her coin. She swept her whole house and looked and looked for it. 
-She did not stop looking for it until she found it. 
-When she found her coin she called her friends and said, “I found my lost coin! Come have a party with me because I thought I had lost this coin but now I have found it!” 
+Jesus said to think about a lady who had ten coins. Can you hold up ten fingers? 　
+This lady really likes her coins. She counts them to make sure that she has them all and that none were lost. (count the ten coins from the previous activity.)　　
+But one day she lost one of her coins. How do you think she felt? What do you think she did? 　
+That's right! She would go and look for it! 　
+She looks all over her house. She looked everywhere for her coin. She swept her whole house and looked and looked for it. 　
+She did not stop looking for it until she found it. 　
+When she found her coin she called her friends and said, “I found my lost coin! Come have a party with me because I thought I had lost this coin but now I have found it!” 　
 ## The Gospel: 
 At the end of this story Jesus said that God loves every person just  like the lady loved her coins. God loves people even more than this lady loved her coins. 
 We are all lost. Not because we don’t know where we are but because of our sin. 
@@ -93,21 +93,21 @@ Have the children help you find all the lost coins.
 Count them out loud and cheer when you find all of them!  
 Repeat the activity as you review the lesson.
 
-# Activity #4a: Act out the story! 
+# Activity #4a: Act out the story! 　
 
-- Say: Let's act out the story that we talked about today.  
-Choose one child to be the shepherd.
-Choose a few children to be the neighbors. 
-Choose one child to be the lost sheep. 
-And the rest of the children can be sheep.
-Lead them in acting the story out. 
-The shepherd is watching his sheep. 
-Then one sheep wanders off and gets lost. 
-The shepherd counts his sheep and sees that one is missing.
-How does the shepherd feel? 
-He looks all over. He even asks his neighbors. 
-He finds the sheep and is very happy! 
-He invites his neighbors to come and celebrate! 
+- Say: Let's act out the story that we talked about today.  　
+Choose one child to be the shepherd.　　
+Choose a few children to be the neighbors. 　
+Choose one child to be the lost sheep. 　
+And the rest of the children can be sheep.　　
+Lead them in acting the story out. 　
+The shepherd is watching his sheep. 　
+Then one sheep wanders off and gets lost. 　
+The shepherd counts his sheep and sees that one is missing.　　
+How does the shepherd feel? 　
+He looks all over. He even asks his neighbors. 　
+He finds the sheep and is very happy! 　
+He invites his neighbors to come and celebrate! 　
 - Say: When a person believes in God he celebrates! God wants everyone to know how much he loves them.  
 Repeat this so that other children can have a turn being different parts of the story. 
 
