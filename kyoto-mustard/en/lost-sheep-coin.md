@@ -1,9 +1,20 @@
-# Activity #1: Pretend to be animals 
+# Activity #1a: Pretend to be animals 
 
 - Ask: What is your favorite animal? 
 - Say: Let's pretend to be animals!  
 Lead the children in pretending that they are different kinds of animals for example: monkey, dog, cat, kangaroo, horse, fish, and a sheep. 
 - Say: There will be a sheep in the lesson today!  
+
+# Activity #1b: Ten!
+
+Divide the children into groups of 5-6 children per a group.  
+Hold up the bag of items and ask: Do you want to see what is in my bag?  
+Then, dump the bag out and say: what a mess!  
+- Say: Can you help me clean this up? Can you help me sort all of these things?  
+Have the children help you sort all the items.  
+After all the items are sorted count each group of items.  
+- Say: There are ten of every one of these things!  
+- Say: Someone in our lesson today had ten coins.  
 
 # Activity #2: Lost 
 
@@ -44,7 +55,28 @@ He sent his son Jesus into the world to die on the cross for our sins.
 It’s like we were lost and far away from God, but when we believe in Jesus God rescues us and finds us!  
 And when we believe, God is so happy! God wants everyone in the whole world to believe in Jesus!  
 
-# Activity #3: Find the Sheep! 
+# Bible Lesson
+
+## Jesus tells a parable: 
+One day Jesus was telling people some parables. 
+A parable is a story that Jesus tells to help us understand God and his ways better.  
+Jesus said to think about a lady who had ten coins. Can you hold up ten fingers? 
+This lady really likes her coins. She counts them to make sure that she has them all and that none were lost. (count the ten coins from the previous activity.)
+But one day she lost one of her coins. How do you think she felt? What do you think she did? 
+That's right! She would go and look for it! 
+She looks all over her house. She looked everywhere for her coin. She swept her whole house and looked and looked for it. 
+She did not stop looking for it until she found it. 
+When she found her coin she called her friends and said, “I found my lost coin! Come have a party with me because I thought I had lost this coin but now I have found it!” 
+## The Gospel: 
+At the end of this story Jesus said that God loves every person just  like the lady loved her coins. God loves people even more than this lady loved her coins. 
+We are all lost. Not because we don’t know where we are but because of our sin. 
+Our sin keeps us away from God. 
+God wants us to be near him because he loves us. 
+So he made a way for us to be near him by sending Jesus to take away our sin. Jesus died and rose again so that anyone who believes can be with God forever. 
+Each of us has to decide if we want to believe in Jesus and follow God. 
+Whenever a person chooses to do this, God celebrates! 
+
+# Activity #3a: Find the Sheep! 
 
 Hide one or more pictures of sheep around the room. Keep one picture for yourself to show the children. 
 Show the picture of the sheep to the children. 
@@ -53,7 +85,15 @@ Let the children look around and find the lost sheep.
 After the children find the sheep you can repeat this activity by asking the kids to close their eyes while you hide the sheep in different places.  
 - Say: There was a lost sheep in our lesson today. God is like the shepherd in the story and we are like the lost sheep. And we can be like the friends and neighbors who celebrate too.
 
-# Activity #4: Act out the story! 
+# Activity #3b: Coin Search! 
+
+Hide ten coins around the room.
+- Say: I have lost some coins. Can you help me find them?   
+Have the children help you find all the lost coins.  
+Count them out loud and cheer when you find all of them!  
+Repeat the activity as you review the lesson.
+
+# Activity #4a: Act out the story! 
 
 - Say: Let's act out the story that we talked about today.  
 Choose one child to be the shepherd.
@@ -71,14 +111,13 @@ He invites his neighbors to come and celebrate!
 - Say: When a person believes in God he celebrates! God wants everyone to know how much he loves them.  
 Repeat this so that other children can have a turn being different parts of the story. 
 
-# Activity #1: Ten!
+# Activity #4b: Group Story Retell
 
-Divide the children into groups of 5-6  children per a group.  
-Hold up the bag of items and ask: Do you want to see what is in my bag?  
-Then, dump the bag out and say: what a mess!  
-- Say: Can you help me clean this up? Can you help me sort all of these things?  
-Have the children help you sort all the items.  
-After all the items are sorted count each group of items.  
-- Say: There are ten of every one of these things!  
-- Say: Someone in our lesson today had ten coins.  
-
+As a group, lead the children in acting out the lesson together.  
+First count the coins (use coins from previous activity) but discover you only have nine coins!  
+Act very sad and worried.  
+- Ask: Can you show me what you think the lady’s face would have looked like when she realized she lost her coin? This coin was very special to her. 
+Pretend to search and sweep the floor. Look everywhere.  
+Find the coin and celebrate!  
+Call all your friends to celebrate!  
+- Say: God is so excited when one person chooses to believe in him! 
