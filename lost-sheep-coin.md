@@ -31,17 +31,18 @@ Read the verse aloud and briefly explain each word or phrase.
 # Bible Lesson
 
 ## Jesus tells a parable: 
-One day a long time ago when Jesus was on earth he would tell people about God and the way that God wants us to live.  
-Jesus told people a parable which is like a story so they could understand God better.  
-Jesus told people to think about a shepherd. Can you think about a shepherd?  
+When Jesus was on earth he would tell people about God and the way that God wants us to live.  
+One day Jesus told people a story about a shepherd. Can you think about a shepherd?  
 A shepherd is someone who takes care of sheep. They make sure that the sheep have food, water and a place to rest. A shepherd keeps his sheep safe.  
 A shepherd will count the sheep to make sure all the sheep are there every day.  
 A shepherd does not want any of his sheep to get lost.  
 ## The lost sheep: 
-Jesus tells a story about a shepherd who had one hundred sheep and one of them was lost. So now he only has ninety-nine sheep.  
+Jesus tells a story about a shepherd who had one hundred sheep.
+But then, the shepherd lost one. Now he only has ninety-nine sheep.  
 The shepherd did not say “Well, that is ok. I have lots of sheep!”  
-Instead he went out and looked all over for it.   
-The shepherd will keep looking for the sheep until he finds it.  
+Instead he went out and looked all over for it.  
+The shepherd searched and searched.  
+And then... he found the sheep!  
 How do you think the shepherd feels right now?  
 When he finds it he carries it back to his friends and says, “I found my lost sheep! Come have a party with me because I thought I had lost this sheep but now I have found it!” 
 ## The Gospel: 
