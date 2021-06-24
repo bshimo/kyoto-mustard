@@ -116,7 +116,7 @@ Repeat this so that other children can have a turn being different parts of the 
 As a group, lead the children in acting out the lesson together.  
 First count the coins (use coins from previous activity) but discover you only have nine coins!  
 Act very sad and worried.  
-- Ask: Can you show me what you think the lady’s face would have looked like when she realized she lost her coin? This coin was very special to her. 
+- Ask: Can you show me what you think the lady’s face would have looked like when she realized she lost her coin? This coin was very special to her. 　
 Pretend to search and sweep the floor. Look everywhere.  
 Find the coin and celebrate!  
 Call all your friends to celebrate!  
