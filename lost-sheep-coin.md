@@ -95,8 +95,8 @@ Repeat the activity as you review the lesson.
 
 # Activity #4a: Act out the story! 　
 
-- Say: Let's act out the story that we talked about today.  　
-Choose one child to be the shepherd.　　
+- Say: Let's act out the story that we talked about today.  
+Choose one child to be the shepherd.　
 Choose a few children to be the neighbors. 　
 Choose one child to be the lost sheep. 　
 And the rest of the children can be sheep.　　
