@@ -51,7 +51,7 @@ Show the picture of the sheep to the children.
 - Say: I have lost some of my sheep, can you help me find them?  
 Let the children look around and find the lost sheep. 
 After the children find the sheep you can repeat this activity by asking the kids to close their eyes while you hide the sheep in different places.  
-- Say: There was a lost sheep in our lesson today and God is like the shepherd in the story and we are like the sheep.
+- Say: There was a lost sheep in our lesson today. God is like the shepherd in the story and we are like the lost sheep. And we can be like the friends and neighbors who celebrate too.
 
 # Activity #4: Act out the story! 
 
@@ -70,3 +70,15 @@ He finds the sheep and is very happy!
 He invites his neighbors to come and celebrate! 
 - Say: When a person believes in God he celebrates! God wants everyone to know how much he loves them.  
 Repeat this so that other children can have a turn being different parts of the story. 
+
+# Activity #1: Ten!
+
+Divide the children into groups of 5-6  children per a group.  
+Hold up the bag of items and ask: Do you want to see what is in my bag?  
+Then, dump the bag out and say: what a mess!  
+- Say: Can you help me clean this up? Can you help me sort all of these things?  
+Have the children help you sort all the items.  
+After all the items are sorted count each group of items.  
+- Say: There are ten of every one of these things!  
+- Say: Someone in our lesson today had ten coins.  
+
