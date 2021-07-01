@@ -8,7 +8,6 @@
 
 **マタイ5:6**
 義に飢え渇く者は幸いです。その人たちは満ち足りるからです。
-Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
 
 ここでイエス様は、義に飢え渇く人たちこそが幸せな人たちなのだと言っていますが、どういうことなのでしょう？
 
@@ -18,13 +17,11 @@ Blessed are those who hunger and thirst for righteousness, for they shall be sat
 
 **マタイ6:33**
 まず神の国と神の義を求めなさい。
-But seek first the kingdom of God and his righteousness
 
 またイエスは私たちにこのように祈るようにと教えています。
 
 **マタイ 6:10**
 御国が来ますように。みこころが天で行われるように、地でも行われますように。
-Your kingdom come, your will be done, on earth as it is in heaven.
 
 義に飢え渇くのは、神の国が来て、神様の御心が天で行われるように、地でも行われることを求めることです。それに義という言葉が使われているのは、神の国や神の御心というのは、単なる霊的な救いだけを意味していないからです。そこには私たちが正しいものへと変えられ、神様のデザインした正しい世界を実現する働きに参加するものにされるということを含んでいます。
 
@@ -48,7 +45,6 @@ Your kingdom come, your will be done, on earth as it is in heaven.
 
 **2ペテロ 3:12-13**
 12 …その日の到来によって、天は燃え崩れ、天の万象は焼け溶けてしまいます。13 しかし私たちは、神の約束にしたがって、義の宿る新しい天と新しい地を待ち望んでいます。
-12 …the heavens will be set on fire and dissolved, and the heavenly bodies will melt as they burn! 13 But according to his promise we are waiting for new heavens and a new earth in which righteousness dwells.
 
 その時に、私たちのこの世界は義の宿る新しい場所となります。全ての悪は神様の義によって滅ぼされ、神様のデザインが復活します。私たちの中にはそんな世界を求める心があります。けれども同時に私たちには罪があって、義からは遠い存在です。義の住む神の国に私たちの居場所はあるのでしょうか？良い知らせがあります。神様の計画のすごさは、罪を滅ぼすだけではなくて、罪にまみれた人を救い、変え、義の宿る新しい天と地に住むのにふさわしいものにとしてくれることです。それこそがイエスを信じ、弟子となった人たちに恵みとして与えられます。
 
