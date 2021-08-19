@@ -4,7 +4,6 @@
 
 **マタイ5:21-26**  
 21 昔の人々に対して、『殺してはならない。人を殺す者はさばきを受けなければならない』と言われていたのを、あなたがたは聞いています。22 しかし、わたしはあなたがたに言います。兄弟に対して怒る者は、だれでもさばきを受けなければなりません。兄弟に『ばか者』と言う者は最高法院でさばかれます。『愚か者』と言う者は火の燃えるゲヘナに投げ込まれます。23 ですから、祭壇の上にささげ物を献げようとしているときに、兄弟が自分を恨んでいることを思い出したなら、24 ささげ物はそこに、祭壇の前に置き、行って、まずあなたの兄弟と仲直りをしなさい。それから戻って、そのささげ物を献げなさい。25 あなたを訴える人とは、一緒に行く途中で早く和解しなさい。そうでないと、訴える人はあなたを裁判官に引き渡し、裁判官は下役に引き渡し、あなたは牢に投げ込まれることになります。26 まことに、あなたに言います。最後の一コドラントを支払うまで、そこから決して出ることはできません。
-21 “You have heard that it was said to our ancestors, Do not murder, and whoever murders will be subject to judgment. 22 But I tell you, everyone who is angry with his brother or sister will be subject to judgment. Whoever insults his brother or sister, will be subject to the court. Whoever says, ‘You fool!’ will be subject to hellfire. 23 So if you are offering your gift on the altar, and there you remember that your brother or sister has something against you, 24 leave your gift there in front of the altar. First go and be reconciled with your brother or sister, and then come and offer your gift. 25 Reach a settlement quickly with your adversary while you’re on the way with him to the court, or your adversary will hand you over to the judge, and the judge to the officer, and you will be thrown into prison. 26 Truly I tell you, you will never get out of there until you have paid the last penny.
 
 先週、ひろしさんが律法についてのわかりやすいメッセージをしてくれました。先週来られなかった方はぜひYoutubeでご覧になってください。今読んだ聖書の箇所は、その先週の部分の続きです。先週は、イエス様がきたのは律法を廃棄するためではなく、成就するためなんだと書かれていました。律法とは、神様が与えた教えで、神の民が神様のもとでお互いを愛しながら生きるためのものでした。
 
@@ -18,7 +17,6 @@
 
 **マタイ 5:20**  
 わたしはあなたがたに言います。あなたがたの義が、律法学者やパリサイ人の義にまさっていなければ、あなたがたは決して天の御国に入れません。
-For I tell you, unless your righteousness surpasses that of the scribes and Pharisees, you will never get into the kingdom of heaven.
 
 これは言い換えれば、チェックボックス式に神の教えを守って、それで大丈夫と思ってるようなら、天の御国には入れないということです。天の御国の住人として、私たちに求められているのはイエスキリストへの信仰による義です。それはチェックボックスをチェックするのではなく、信仰によって積極的に人を愛していく義です。
 
@@ -26,7 +24,6 @@ For I tell you, unless your righteousness surpasses that of the scribes and Phar
 
 **マタイ 5:21**  
 昔の人々に対して、『殺してはならない。人を殺す者はさばきを受けなければならない』と言われていたのを、あなたがたは聞いています。
-You have heard that it was said to our ancestors, Do not murder, and whoever murders will be subject to judgment.
 
 この「殺してはならない」というのは、実際に聖書に書いてある言葉で、神様がモーセを通してイスラエルに与えた十戒の中にある教えです。けれどもそれに続く、「人を殺す者はさばきを受けなければならない」という部分は、聖書にはなくユダヤ人の伝承の中で出来上がったものでした。だからこそ、イエスは聖書にこう書いてあるではなく、「昔の人々に対して…と言われていた」と語っています。
 
@@ -38,7 +35,6 @@ You have heard that it was said to our ancestors, Do not murder, and whoever mur
 
 **マタイ 5:22**  
 しかし、わたしはあなたがたに言います。兄弟に対して怒る者は、だれでもさばきを受けなければなりません。兄弟に『ばか者』と言う者は最高法院でさばかれます。『愚か者』と言う者は火の燃えるゲヘナに投げ込まれます。
-But I tell you, everyone who is angry with his brother or sister will be subject to judgment. Whoever insults his brother or sister, will be subject to the court. Whoever says, ‘You fool!’ will be subject to hellfire.
 
 もし僕が皆さんが何か言ったことに反対して、「しかし、わたしはあなたがたに言います」と言ったら、「何様だよ」って思うと思います。けれども、これを言ってるのはイエス様です。神様のもとから来た、御国の王であるイエス様が、権威を持って御国の民に語っています。
 
@@ -56,7 +52,6 @@ But I tell you, everyone who is angry with his brother or sister will be subject
 
 **ヨハネの手紙　第一　3:14-16**  
 14 私たちは、自分が死からいのちに移ったことを知っています。兄弟を愛しているからです。愛さない者は死のうちにとどまっています。15 兄弟を憎む者はみな、人殺しです。あなたがたが知っているように、だれでも人を殺す者に、永遠のいのちがとどまることはありません。16 キリストは私たちのために、ご自分のいのちを捨ててくださいました。それによって私たちに愛が分かったのです。ですから、私たちも兄弟のために、いのちを捨てるべきです。
-14 We know that we have passed from death to life because we love our brothers and sisters. The one who does not love remains in death. 15 Everyone who hates his brother or sister is a murderer, and you know that no murderer has eternal life residing in him. 16 This is how we have come to know love: He laid down his life for us. We should also lay down our lives for our brothers and sisters.
 
 イエスの愛を知るときに、私たちは初めて本当の意味で人を大切にして、愛することができるようになります。それはチェックボックス式の愛ではありません。今日は、それほど人に怒らなかった、チェック。誰にも「バカ者」、「愚か者」と言ってないぞ、チェック。誰も殺してないぞ、チェック。それでは、当時のユダヤ人と一緒になってしまいます。今日のイエスの教えに従うことは、イエスを信じて、イエスの愛を受け、その愛で積極的に周りの人たちを愛していくことです。
 
@@ -64,13 +59,12 @@ But I tell you, everyone who is angry with his brother or sister will be subject
 
 **マタイ5:23-26**  
 23 ですから、祭壇の上にささげ物を献げようとしているときに、兄弟が自分を恨んでいることを思い出したなら、24 ささげ物はそこに、祭壇の前に置き、行って、まずあなたの兄弟と仲直りをしなさい。それから戻って、そのささげ物を献げなさい。25 あなたを訴える人とは、一緒に行く途中で早く和解しなさい。そうでないと、訴える人はあなたを裁判官に引き渡し、裁判官は下役に引き渡し、あなたは牢に投げ込まれることになります。26 まことに、あなたに言います。最後の一コドラントを支払うまで、そこから決して出ることはできません。
-23 So if you are offering your gift on the altar, and there you remember that your brother or sister has something against you, 24 leave your gift there in front of the altar. First go and be reconciled with your brother or sister, and then come and offer your gift. 25 Reach a settlement quickly with your adversary while you’re on the way with him to the court, or your adversary will hand you over to the judge, and the judge to the officer, and you will be thrown into prison. 26 Truly I tell you, you will never get out of there until you have paid the last penny.
 
 今までは怒りという自分が相手に向ける感情についてでしたが、ここでは少し状況が変わっています。どちらの例え話も、相手が自分を恨んでいたり、自分を訴えているときについてです。なんで、イエス様は状況を変えた例え話を話したのかなっていうのを正直わからなくて、結構考えました。イエス様がここで伝えていることは、和解が必要ならすぐに行動に移しなさいということです。しかし、自分が相手に対して怒りを感じているときには、自分が相手を愛して、ゆるすことを選べば、わざわざ相手に「あなたのこういうところにイラついていたけど、ゆるすね」と伝えなくていいこともあります。けれども相手が自分に対して何か抱えているときには、和解のためには必ず積極的な行動が必要です。だからこそ、イエス様は積極的な和解が必要になる状況について話し始めたのではないかなと思います。
 
 ここでのケースは、もしかしたら一方的に自分が悪いのかもしれませんし、もしかしたら相手も自分を傷つけているようなケースかもしれません。いずれにしても、ここでイエス様は愛の福音を信じている私たちは、和解が求められている時には積極的に和解をしにいくんだと伝えています。
 
-初めの話では（マタイ5:23-26 スクリーン）、ある人が祭壇で捧げ物をしようとしています。イエスに従っていた人たちの多くはガリラヤ出身の人たちで、その人たちにとってエルサレムの祭壇で捧げ物をするのは、4日間くらい、テクテク歩いてエルサレムまで行って、また4日間くらいかけて帰ってくるような大事でした。名古屋から京都まで歩いてきて、さあ礼拝しようと思ったら、「あ、そういえばあの人を怒らせてたな」と思い出した感じです。イエス様は、そのときには、すぐにその人と仲直りしに行きなさいと言っています。
+初めの話では（**マタイ5:23-26 スクリーン**）、ある人が祭壇で捧げ物をしようとしています。イエスに従っていた人たちの多くはガリラヤ出身の人たちで、その人たちにとってエルサレムの祭壇で捧げ物をするのは、4日間くらい、テクテク歩いてエルサレムまで行って、また4日間くらいかけて帰ってくるような大事でした。名古屋から京都まで歩いてきて、さあ礼拝しようと思ったら、「あ、そういえばあの人を怒らせてたな」と思い出した感じです。イエス様は、そのときには、すぐにその人と仲直りしに行きなさいと言っています。
 
 この箇所の間違った読み方は、神様の前にでて礼拝する前に、自分の人間関係を清めなきゃいけないという読み方です。また、神様との関係よりも、他の人との関係の方が大切だと言うことでもありません。それは、聖書が一貫して語っていることと矛盾しています。
 
