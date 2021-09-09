@@ -21,21 +21,13 @@
 
 しかし、ヨナは立って、主の御顔を避けてタルシシュへ逃れようとした。彼はヤッファに下り、タルシシュ行きの船を見つけると、船賃を払ってそれに乗り込み、主の御顔を避けて、人々と一緒にタルシシュへ行こうとした。"ヨナ書　1章3節
 
-But Jonah rose to flee to Tarshish from the presence of the Lord. He went down to Joppa and found a ship going to Tarshish. So he paid the fare and went down into it, to go with them to Tarshish, away from the presence of the Lord.
-‭‭Jonah‬ ‭1:3‬ ‭
-
 ヨナはなんと、主の御顔を避けて、タルシシュへ逃げてしまいます。タルシシュというのは、ニネベとは反対方向に位置する場所にある町の名前です。ヨナが逃げる理由は4章に書かれているのですが「神様は憐れみ深く、怒るに遅い方であるがゆえに、敵であるニネベが悔い改めたとしたら、きっと神様はニネベを許すに違いない」と思ったからです。ヨナは自分の敵を愛し、赦し、あわれむ神に対して怒っています。ヨナにとって敵であるニネベが神様によって救われるということは、耐え難いことだったかもしれません。ともかくヨナは、神様の命令から逃げるために船に乗ります。船は動き始め、海を渡りはじめましたがここで事件が起こります。続けて読んでいきましょう。
 
 ところが、主が大風を海に吹きつけられたので、激しい暴風が海に起こった。それで船は難破しそうになった。水夫たちは恐れて、それぞれ自分の神に向かって叫んだ。そして、船を軽くしようと船の積荷を海に投げ捨てた。ヨナ書　1章4節〜5節a
 
-But the Lord hurled a great wind upon the sea, and there was a mighty tempest on the sea, so that the ship threatened to break up. Then the mariners were afraid, and each cried out to his god. And they hurled the cargo that was in the ship into the sea to lighten it for them. 
-‭‭Jonah‬ ‭1:4-5‬ a
-
 神様は、船が難破するほどの激しい暴風を海に起こしました。船乗りさんたちは、それぞれが自分が信じている異教の神に向かって叫びます。そして、船が沈まないように船の積荷を海に捨て始めました。けれども、風は収まらず、危険な状態が続くのです。あれ？ヨナはこの時、何をしていたのでしょうか？
 
 一方、ヨナは船底に下りていて、横になってぐっすり寝入っていた。"ヨナ書　1章5節b
-
-But Jonah had gone down into the inner part of the ship and had lain down and was fast asleep.‭‭Jonah‬ ‭1:5‬ b
 
 船乗りさんたちがパニックになっている中、ヨナはなんと寝ていたのです。「寝入ってた」と書かれていますので、この時のヨナの寝息を効果音にするならば、ぐーぐー、ZZZとなるぐらい寝ていたのでしょう。そんな寝ているヨナを船長が見つけます。船長は寝ているヨナを見て「お前なにしとんねん!?」って思ったかもしれません。船長はヨナに近づき起こします。
 
@@ -43,24 +35,15 @@ But Jonah had gone down into the inner part of the ship and had lain down and wa
 
 そこで彼らはヨナに言った。「話してくれ。だれのせいで、このわざわいが私たちに降りかかったのか。あなたの仕事は何か。どこから来たのか。国はどこか。どの民の者か。」ヨナは彼らに言った。「私はヘブル人です。私は、海と陸を造られた天の神、主を恐れる者です。」人々は非常に恐れて、彼に「何ということをしたのか」と言った。人々は、ヨナが彼らに告げたことによって、彼が主の御顔を避けて逃れようとしていることを知ったからである。"ヨナ書　1章8～10節
 
-Then they said to him, “Tell us on whose account this evil has come upon us. What is your occupation? And where do you come from? What is your country? And of what people are you?” And he said to them, “I am a Hebrew, and I fear the Lord, the God of heaven, who made the sea and the dry land.” Then the men were exceedingly afraid and said to him, “What is this that you have done!” For the men knew that he was fleeing from the presence of the Lord, because he had told them.
-‭‭Jonah‬ ‭1:8-10‬ ‭ESV‬‬
-
 ヨナは自分が何者であるかを話し、そして、主である神様を信じていることを白状します。船乗りたちはヨナが主の御顔を避けて逃げていることを知って、恐れました。船乗りたちは、荒れる一方の海を見て「あなたをどうしたら、海が静まるのだろうか」とヨナに言います。そこでヨナは信じられない発言をします。12節を読みます。
 
 ヨナは彼らに言った。「私を抱え上げて、海に投げ込みなさい。そうすれば、海はあなたがたのために静かになるでしょう。私は分かっています。この激しい暴風は、私のせいであなたがたを襲ったのです。」ヨナ書　1章12節
-
-He said to them, “Pick me up and hurl me into the sea; then the sea will quiet down for you, for I know it is because of me that this great tempest has come upon you.”
-‭‭Jonah‬ ‭1:12‬ ‭
 
 ヨナは「自分を海に投げ込め。」と言うのです。これは船乗りたちに自分を殺せと言っているようなもんです。ところが、船乗りたちは、それをすぐに実行しませんでした。彼らは乗客の命を最優先するために、なんとか陸に戻れないか必死に行動し続けました。しかしながら、荒れる海の前に彼らの努力は空しく、やむを得ずヨナが言うとおりにします。
 
 船乗りたちはこの後、初めて神様である主に祈り、ヨナを海に投げ込みました。すると嵐はピタッと止まります。船乗りたちにとって大きな奇跡を体験した瞬間だったと思います。この事件によって、船乗りたちは本物の神様を知り、信じました。そして、ヨナはどうなったのでしょうか。1章17節を読みます。
 
 主は大きな魚を備えて、ヨナを吞み込ませた。ヨナは三日三晩、魚の腹の中にいた。"ヨナ書　1章17節
-
-And the Lord appointed a great fish to swallow up Jonah. And Jonah was in the belly of the fish three days and three nights.
-‭‭Jonah‬ ‭1:17‬ ‭
 
 これはまた、大きな奇跡ですよね。おそらく、ヨナは海の中で死ぬつもりだったかもしれません。死ねば、ニネベに行かなくてすむからです。けれども神様は大きな魚を使って、ヨナを呑み込ませました。ヨナは魚の中に三日三晩いることになります。ざっと見てきましたが、これがヨナ書1章の物語です。続きが気になりますね。来週はこの続きを見ていきます。ぜひ来週も礼拝に来てください。
 
@@ -73,14 +56,9 @@ And the Lord appointed a great fish to swallow up Jonah. And Jonah was in the be
 
 しかし、ヨナは立って、主の御顔を避けてタルシシュへ逃れようとした。彼はヤッファに下り、タルシシュ行きの船を見つけると、船賃を払ってそれに乗り込み、主の御顔を避けて、人々と一緒にタルシシュへ行こうとした。"ヨナ書　1章3節
 
-But Jonah rose to flee to Tarshish from the presence of the Lord. He went down to Joppa and found a ship going to Tarshish. So he paid the fare and went down into it, to go with them to Tarshish, away from the presence of the Lord.‭‭Jonah‬ ‭1:3‬ 
-
 ヨナは立って「主の御顔を避けて」と書かれています。この言葉にはどのような意味があるかというと、ただ単に神様である主から離れるだけではなく、主の存在から逃げて、主に背く、反抗するというのがあります。私たちが信じる神様はこの目では見えないですが、確かにこの世界に存在していて、今もこの世界を治めておられ、私たちにはたらきかけておられます。その神様から逃げようとするのです。ヨナ書1章は「主の御顔を避けて」という言葉が3回出てきます。そしてこの言葉は創世記3:8に出て来ます。創世記3:8を読みます。
 
 "そよ風の吹くころ、彼らは、神である主が園を歩き回られる音を聞いた。それで人とその妻は、神である主の御顔を避けて、園の木の間に身を隠した。"創世記　3章8節
-
-And they heard the sound of the Lord God walking in the garden in the cool of the day, and the man and his wife hid themselves from the presence of the Lord God among the trees of the garden.
-‭‭Genesis‬ ‭3:8‬ ‭ESV‬‬
 
 創世記3章は、神様によって造られた最初の人アダムとエバが悪魔に誘惑されて、神様が禁じていた木の実を食べ、その結果、今までなかった罪の性質が、人とこの世界に入ってしまったという場面です。彼らも「主の御顔を避けて」身を隠しています。きっと、彼らは神様の命令に背いてしまったという自責と良心の呵責があったのでしょう。そして、隠れていれば、見つからないと思っていたのかもしれません。ヨナもまた、嵐が起き始めた時、船底に下りていき、身を隠しました。アダム、エバ、そしてヨナは神様に逆らいました。自分勝手で自己中心な行動をしたのです。私たちも同じようなことをしたことがあると思います。罪を犯した時、神様から隠れてしまう。自分の恥を認めたくないから、神様から自分を避けてしまう。私たちはいつの間にか、自分の罪によって、負のスパイラルに陥ってしまうのです。
 
@@ -99,9 +77,6 @@ And they heard the sound of the Lord God walking in the garden in the cool of th
 
 6,福音
 "そのとき、律法学者、パリサイ人のうちの何人かがイエスに「先生、あなたからしるしを見せていただきたい」と言った。しかし、イエスは答えられた。「悪い、姦淫の時代はしるしを求めますが、しるしは与えられません。ただし預言者ヨナのしるしは別です。ヨナが三日三晩、大魚の腹の中にいたように、人の子も三日三晩、地の中にいるからです。ニネベの人々が、さばきのときにこの時代の人々とともに立って、この時代の人々を罪ありとします。ニネベの人々はヨナの説教で悔い改めたからです。しかし見なさい。ここにヨナにまさるものがあります。"マタイの福音書　12章38～41節
-
-Then some of the scribes and Pharisees answered him, saying, “Teacher, we wish to see a sign from you.” But he answered them, “An evil and adulterous generation seeks for a sign, but no sign will be given to it except the sign of the prophet Jonah. For just as Jonah was three days and three nights in the belly of the great fish, so will the Son of Man be three days and three nights in the heart of the earth. The men of Nineveh will rise up at the judgment with this generation and condemn it, for they repented at the preaching of Jonah, and behold, something greater than Jonah is here.
-‭‭Matthew‬ ‭12:38-41‬ ‭ESV‬‬
 
 イエス様はマタイ12:38で「しるし」について語られています。このしるしとは、異言やまぼろし、癒し、預言や死人をよみがえらせるなどの奇跡を指して使われています。なんで、イエス様が「しるし」について話しているかと言うと、イエス様を信じない律法学者やパリサイ人たちが、イエス様が起こしていた奇跡を見ていたのにもかかわらず、「あんたが神だって言うのなら、もっとすごい奇跡を見せろ！」と言ったからでした。
 
