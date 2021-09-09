@@ -12,9 +12,6 @@
 
 そんなヨナ書の物語を今日から見ていきます。ヨナ書は神様がヨナにあるミッションを与えるところからスタートします。1章1節から読みます。
 
-3,ヨナ書1章のストーリー：
-アミタイの子ヨナに、次のような主のことばがあった。「立ってあの大きな都ニネベに行き、これに向かって叫べ。彼らの悪がわたしの前に上って来たからだ。」ヨナ書 1章1～2節
-
 Now the word of the Lord came to Jonah the son of Amittai, saying, “Arise, go to Nineveh, that great city, and call out against it, for their evil has come up before me.”
 ‭‭Jonah‬ ‭1:1-2‬ ‭‬‬
 
