@@ -81,3 +81,5 @@ By believing in Jesus, we can always seek the face of the Lord, receive the merc
 I'm sure some people here aren't Christians. Thank you for participating in the service today and listening to this whole message. God has so much mercy, and he wants to have a relationship with you. And for that reason he has given Jesus Christ to us and to you. We want you to know that Jesus Christ is your Savior. To save you from sin Jesus died on the cross and was resurrected three days later. Please do learn more about this truth. Let's pray together.
 
 Pray
+
+God. Thank you for your great mercy and grace. You give mercy without end, new every morning to us even now. Still, we are vulnerable to going away from your presence and acting self-centeredly. Please forgive our sins. Jesus, you are God who died for our sins, overcame death, and are still alive. Thank you for Jesus cleansing us from our sins. Thank you for the Holy Spirit being in us and changing us into to be more like Christ. Thank you that by believing in Jesus we have been given the freedom to seek your presence at all times. We seek your presence now. We worship you. We pray in the name of Jesus. Amen.
