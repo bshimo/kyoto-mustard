@@ -50,8 +50,6 @@
 ヨハネの福音書 10:10-11
 わたしが来たのは、羊たちがいのちを得るため、それも豊かに得るためです。わたしは良い牧者です。良い牧者は羊たちのためにいのちを捨てます。
 
-I came that [the sheep] may have life and have it abundantly. I am the good shepherd. The good shepherd lays down his life for the sheep. 
-
 イエスが人となってこの世に来たのは、羊のように彷徨う私たちのために、いのちを捨てるためでした。神様に逆らう私たちが、神様のもとに帰るためには、はじめに、罪が解決される必要があります。罪の結果はわたしたちの破滅であって、究極的には死です。それは肉体的な死もそうですが、永遠に神様から引き離されたままでいるという、霊的な死です。しかし、神様はそんな状況にいる私たちをそれでも愛し、救おうとイエスを遣わされました。ここに、創造主である神様が、人となられたことの意味があります。イエスは、救い主として、私たちの代わりに、十字架にかかって死にました。十字架の上で、人の罪に対する神様のさばきはイエスに注がれました。
 
 そして、十字架の死によって私たちの罪の問題を解決したイエスを、神様は復活させます。多くの証拠がこのイエスの復活が歴史上の事実であることを、裏付けています。復活したイエスこそが、私たちを罪から救う、救い主であり、私たちが人生の中心として従うべき主です。
@@ -65,16 +63,10 @@ I came that [the sheep] may have life and have it abundantly. I am the good shep
 ルカ 2:12
 12 あなたがたは、布にくるまって飼葉桶に寝ているみどりごを見つけます。それが、あなたがたのためのしるしです。
 
-
-12 And this will be a sign for you: you will find a baby wrapped in swaddling cloths and lying in a manger.
-
 生まれたばかりのイエス様は、他に場所がなかったため、家畜たちが餌を食べる飼い葉桶をベビーベッドとして寝かされていました。世界の創り主である唯一の神様が、この地上に来るときに、誰が飼い葉桶に寝かされている赤ちゃんを想像するでしょう。私たちが普通だったら想像する、権力とか、富とか、豪華さとは程遠い、そこに、確かにこの世界の救い主が、小さな赤ちゃんとして寝かされていました。それは驚くべきことでしたが、羊飼いたちは信じて、出かけていきます。
 
 ルカの福音書 Luke 2:15-18
 15 御使いたちが彼らから離れて天に帰ったとき、羊飼いたちは話し合った。「さあ、ベツレヘムまで行って、主が私たちに知らせてくださったこの出来事を見届けて来よう。」16 そして急いで行って、マリアとヨセフと、飼葉桶に寝ているみどりごを捜し当てた。17 それを目にして羊飼いたちは、この幼子について自分たちに告げられたことを知らせた。18 聞いた人たちはみな、羊飼いたちが話したことに驚いた。…20 羊飼いたちは、見聞きしたことがすべて御使いの話のとおりだったので、神をあがめ、賛美しながら帰って行った。
-
-
-15 When the angels went away from them into heaven, the shepherds said to one another, “Let us go over to Bethlehem and see this thing that has happened, which the Lord has made known to us.” 16 And they went with haste and found Mary and Joseph, and the baby lying in a manger. 17 And when they saw it, they made known the saying that had been told them concerning this child. 18 And all who heard it wondered at what the shepherds told them.20 And the shepherds returned, glorifying and praising God for all they had heard and seen, as it had been told them.
 
 羊飼いが出かけていくと、そこには御使いが告げた通りのことが起こっていました。私たちも、人生を満たしてくれるものをいろいろ探し求める中で、教会や聖書に答えがあるとはなかなか思わないかもしれません。飼い葉桶に寝かされた赤ちゃんが神であるというのが驚きであるように、十字架の上で血を流して死んだイエスが、私たちの唯一の救い主だというのは、正直予想外です。しかし羊飼いたちは、神の言葉を信じました。そして、その目ではっきりと救い主を見ました。そして、その話が今の私たちまで、何千年もの間伝えられてきています。救い主が来たという神様のメッセージは、私たちのもとにも伝えられています。
 
