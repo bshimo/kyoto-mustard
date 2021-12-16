@@ -38,7 +38,6 @@
 
 ルカ2:9-11
 9 すると、主の使いが彼らのところに来て、主の栄光が周りを照らしたので、彼らは非常に恐れた。10 御使いは彼らに言った。「恐れることはありません。見なさい。私は、この民全体に与えられる、大きな喜びを告げ知らせます。11 今日ダビデの町で、あなたがたのために救い主がお生まれになりました。この方こそ主キリストです。」
- 9 And an angel of the Lord appeared to them, and the glory of the Lord shone around them, and they were filled with great fear. 10 And the angel said to them, “Fear not, for behold, I bring you good news of great joy that will be for all the people. 11 For unto you is born this day in the city of David a Savior, who is Christ the Lord.”
 
 羊飼いたちのもとに神様からの使いがやってきて、喜びのメッセージを伝えます。「あなたがたのために救い主がお生まれになりました。」それは、神様と私たち人間との壊れてしまった関係を回復して、この世界の壊れた部分を正す方が来られたということです。そして、主の使いは、この救い主を「主キリスト」と呼んでいます。イエスのことはよく、イエス・キリストと呼ばれますが、実はキリストとは、イエスの名字ではありません。これは、神に選ばれた者という意味のギリシャ語で、神様が世界を救うために約束してくださっていた方を示しています。
 
